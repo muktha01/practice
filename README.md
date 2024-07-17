@@ -1,2 +1,0 @@
-# practice
-geekfolio rep
